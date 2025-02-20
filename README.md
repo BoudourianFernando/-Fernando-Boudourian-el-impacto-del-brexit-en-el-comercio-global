@@ -1,1 +1,2 @@
 # -Fernando-Boudourian-el-impacto-del-brexit-en-el-comercio-global
+Desde su salida de la UE, el Reino Unido enfrenta desafíos comerciales sin precedentes. Nuevas regulaciones han frenado el intercambio con Europa, reduciendo el volumen comercial en un 15%. Mientras tanto, la UE fortaleció su comercio interno, compensando parte de las pérdidas británicas. Ahora, el Reino Unido busca nuevos acuerdos para mitigar el impacto. 
